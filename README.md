@@ -1,0 +1,2 @@
+# untuk-manusia-tercantik
+bukaaaaaa
